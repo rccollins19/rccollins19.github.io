@@ -1,7 +1,5 @@
 # Our Lady of Peñafrancia Church
-
-![Facade](https://images.app.goo.gl/XxtrCCvU2xEA2xXY6)
-
+![Facade](https://1.bp.blogspot.com/- IdsvMzVwpRI/T84TdDzLGGI/AAAAAAAADqc/QOD44MxBGh8/s1600/IMG_7888.JPG "Church Facade")
 *Our Lady of Peñafrancia Church Facade*
 Our Lady of Peñafrancia Shrine is a Roman Catholic church in the Philippines, located in Naga City. It is
 under the jurisdiction of the Archdiocese of Caceres. The church was formerly the home of the image of
